@@ -6,4 +6,7 @@ Só Deus pode nos salvar
 
 >Tiago Vila-Nova
 
+>só ELE
+
 >Um Dia a gente se encontra
+
